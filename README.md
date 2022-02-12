@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Code-gnosis
-- 👀 I’m interested in the King of God.
+- 👀 I’m interested in the Kingdom of God.
 - 🌱 I’m currently learning node js
 - 💞️ I’m looking to collaborate on the biggest porjects in the world
 - 📫 How to reach me @email - sebakunzithierry@gmail.com
